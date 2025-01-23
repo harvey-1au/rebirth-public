@@ -66,11 +66,11 @@ NULL.
 
 何以传承？唯真、唯爱、唯美。
 
-- 任天堂 (1889-)
-- 上海交通大学 (1896-)：[戴文渊-求索之路](https://www.bilibili.com/video/BV1rM4m1U7jb/)
-- 北京大学 (1898-)：[张维迎-自由是一种责任](https://www.aisixiang.com/data/104960.html)
+- 任天堂 (1889-)：[岩田 聡-Heart of a Gamer](https://youtu.be/RMrj8gdUfCU)
+- 上海交通大学 (1896-)：[戴文渊-求索之路](https://www.bilibili.com/video/BV1rM4m1U7jb/)、[茅于轼-把毛泽东还原成人](https://www.china-week.com/html/5972.htm)。
+- 北京大学 (1898-)：[张维迎-自由是一种责任](https://www.aisixiang.com/data/104960.html)、[饶毅-做自己尊重的人](https://youtu.be/6ZrP4CqqKYg)
 - 复旦大学 (1905-)
-- 清华大学 (1911-)：[钱颖一-大学的改革](https://book.douban.com/subject/26883452/)
+- 清华大学 (1911-)：[钱颖一-大学的改革](https://book.douban.com/subject/26883452/)、[许成钢-我的文革十年](https://www.aisixiang.com/data/50451.html)
 
 ## 附录-我的信息流
 
