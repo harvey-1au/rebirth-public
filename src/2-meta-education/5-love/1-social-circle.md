@@ -94,6 +94,7 @@ NULL.
 - [岩田 聡](https://youtu.be/RMrj8gdUfCU)："On my business card, I am a corporate president. In my mind, I am a game developer. But in my heart, I am a gamer."
 - [钱颖一](https://www.aisixiang.com/thinktank/qianyingyi.html)：学为人师，行为世范。
 - [戴文渊](https://www.bilibili.com/video/BV1gx4y1t7Cm/)：追求真理的第二范式。
+- [Henri-Louis Bergson](https://book.douban.com/subject/6039247/)：时间之义，在于绵延。
 
 ## 附录-生生不息
 
