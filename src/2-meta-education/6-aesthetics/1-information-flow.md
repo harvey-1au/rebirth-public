@@ -68,7 +68,7 @@ NULL.
 
 - 任天堂 (1889-)：[岩田 聡-Heart of a Gamer](https://youtu.be/RMrj8gdUfCU)
 - 上海交通大学 (1896-)：[戴文渊-求索之路](https://www.bilibili.com/video/BV1rM4m1U7jb/)、[茅于轼-把毛泽东还原成人](https://www.china-week.com/html/5972.htm)。
-- 北京大学 (1898-)：[张维迎-自由是一种责任](https://www.aisixiang.com/data/104960.html)、[饶毅-做自己尊重的人](https://youtu.be/6ZrP4CqqKYg)。
+- 北京大学 (1898-)：[张维迎-自由是一种责任](https://www.aisixiang.com/data/104960.html)、[饶毅-做自己尊重的人](https://youtu.be/6ZrP4CqqKYg)、[贺卫方-柴静访谈贺卫方：没有独立的司法，没有一个人是安全的](https://youtu.be/ksQyUSaG2oI)。
 - 北京师范大学 (1902-)：[刘晓波](https://www.nobelprize.org/prizes/peace/2010/xiaobo/facts/)、[莫言](https://www.nobelprize.org/prizes/literature/2012/yan/facts/)。
 - 复旦大学 (1905-)
 - 清华大学 (1911-)：[钱颖一-大学的改革](https://book.douban.com/subject/26883452/)、[许成钢-我的文革十年](https://www.aisixiang.com/data/50451.html)。
