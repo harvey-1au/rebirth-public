@@ -67,6 +67,7 @@ NULL.
 何以传承？唯真、唯爱、唯美。
 
 - Harvard University-1636：[Samuel Phillips Huntington-第三波](https://book.douban.com/subject/1048109/)、[Francis Yoshihiro Fukuyama-历史的终结与最后的人](https://book.douban.com/subject/25908550/)、[Robert Nozick-无政府、国家和乌托邦](https://book.douban.com/subject/3074246/)。
+- Princeton University (1746-)：[Albert Einstein](https://www.nobelprize.org/prizes/physics/1921/einstein/facts/)；[Fei-Fei Li-The Worlds I See](https://book.douban.com/subject/36493045/)。
 - 任天堂 (1889-)：[岩田 聡-Heart of a Gamer](https://youtu.be/RMrj8gdUfCU)
 - 上海交通大学 (1896-)：[戴文渊-求索之路](https://www.bilibili.com/video/BV1rM4m1U7jb/)、[茅于轼-把毛泽东还原成人](https://www.china-week.com/html/5972.htm)。
 - 北京大学 (1898-)：[张维迎-自由是一种责任](https://www.aisixiang.com/data/104960.html)、[饶毅-做自己尊重的人](https://youtu.be/6ZrP4CqqKYg)、[贺卫方-柴静访谈贺卫方：没有独立的司法，没有一个人是安全的](https://youtu.be/ksQyUSaG2oI)。
