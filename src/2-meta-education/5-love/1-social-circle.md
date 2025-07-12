@@ -95,6 +95,7 @@ NULL.
 - [钱颖一](https://www.aisixiang.com/thinktank/qianyingyi.html)：学为人师，行为世范。
 - [戴文渊](https://www.bilibili.com/video/BV1gx4y1t7Cm/)：追求真理的第二范式。
 - [Henri-Louis Bergson](https://book.douban.com/subject/6039247/)：时间之义，在于绵延。
+- [Nassim Nicholas Taleb](https://en.wikipedia.org/wiki/Nassim_Nicholas_Taleb)：从“爱的天才”到“反脆弱的爱的天才”，即“塔勒布静安分布”。
 
 ## 附录-生生不息
 
