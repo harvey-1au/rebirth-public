@@ -39,9 +39,9 @@
   6. 美学
      1. 信息流
      2. 文学
-     3. 电影
-     4. 电子游戏
-     5. 音乐
+     3. 音乐
+     4. 电影
+     5. 电子游戏
 - 后记：致和你相似的我
 - [附录-每日教育](https://github.com/harvey-1au/rebirth/tree/main/src/3-daily-education)
 - [致谢](https://github.com/harvey-1au/rebirth/blob/main/src/4-acknowledgments.md)
