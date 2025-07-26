@@ -158,4 +158,5 @@ NULL.
 - [哔哩哔哩/《不被大风吹倒》：莫言写给青年朋友的一封信](https://www.bilibili.com/video/BV1A44y1u7PF/) (2022-05-03)
 - [哔哩哔哩/《如何快速变老》：给所有人的科学变老指南](https://www.bilibili.com/video/BV1Fo4y1L7AU/) (2023-05-03)
 - [哔哩哔哩/轻生的学生，家暴的父母，做了老师后我非常崩溃......](https://www.bilibili.com/video/BV1j8411Z7mb/) (2023-06-09)
+- [Coco (2017)](https://movie.douban.com/subject/20495023/)
 - [君たちはどう生きるか (2023)](https://movie.douban.com/subject/26925611/)
