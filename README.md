@@ -28,7 +28,7 @@
      1. [古希腊] 柏拉图：[理想国](https://book.douban.com/subject/26666912/)
      2. [德] 康德：[纯粹理性批判](https://book.douban.com/subject/35916165/)
      3. [德] 黑格尔：[逻辑学](https://book.douban.com/subject/6962539/)
-     4. [美] 约翰·罗尔斯：[正义论 (ISBN: 9787500402442)](https://book.douban.com/subject/1028268/)
+     4. [美] 约翰·罗尔斯：[正义论](https://book.douban.com/subject/1028268/)
      5. [美] 罗伯特·诺奇克：[无政府、国家和乌托邦](https://book.douban.com/subject/3074246/)
   5. 爱学
      1. 社交圈
