@@ -24,7 +24,7 @@
      3. 概率论
      4. 测度论
      5. 随机过程论
-  4. 哲学
+  4. [哲学](https://github.com/harvey-1au/rebirth-public/blob/main/src/2-meta-education/4-philosophy/0-intro.md)
      1. [古希腊] 柏拉图：[理想国](https://book.douban.com/subject/26666912/)
      2. [德] 康德：[纯粹理性批判](https://book.douban.com/subject/35916165/)
      3. [德] 黑格尔：[逻辑学](https://book.douban.com/subject/6962539/)
