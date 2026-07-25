@@ -160,3 +160,77 @@ NULL.
 - [哔哩哔哩/轻生的学生，家暴的父母，做了老师后我非常崩溃......](https://www.bilibili.com/video/BV1j8411Z7mb/) (2023-06-09)
 - [Coco (2017)](https://movie.douban.com/subject/20495023/)
 - [君たちはどう生きるか (2023)](https://movie.douban.com/subject/26925611/)
+
+## 附录-世界公民
+
+### 2025-08
+
+TODO：2025-08
+
+### 2025-09
+
+TODO：2025-09
+
+### 2025-10
+
+TODO：2025-10
+
+### 2025-11
+
+TODO：2025-11
+
+### 2025-12
+
+TODO：2025-12
+
+### 2026-01
+
+TODO：2026-01
+
+### 2026-02
+
+TODO：2026-02
+
+### 2026-03
+
+TODO：2026-03
+
+### 2026-04
+
+TODO：2026-04
+
+### 2026-05
+
+TODO：2026-05
+
+### 2026-06
+
+TODO：2026-06
+
+### 2026-07
+
+1. Vitaliy Katsenelson
+2. Anna Louie Sussman
+3. 郭莉莉
+4. Amanda Schupak
+5. 董广平
+6. 김설
+7. David Baker
+8. 李辈滨
+9. Simar Bajaj
+10. Aaron James Horvath
+11. Elias Canetti
+12. Yu Ying-shih
+13. Selina Xu
+14. 邓煜
+15. 曾锐生
+16. 岑蘊華
+17. James P. Carse
+18. 马小悟
+19. 余倩
+20. Simon Oliver Sinek
+21. 廖晓英
+22. 최상훈
+23. 王虹
+24. Abdul Qaiyum
+25. Kevin Rudd
