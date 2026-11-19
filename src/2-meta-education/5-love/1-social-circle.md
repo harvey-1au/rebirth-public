@@ -234,3 +234,40 @@ TODO：2026-06
 23. 王虹
 24. Abdul Qaiyum
 25. Kevin Rudd
+
+### 2026-08
+
+TODO：2026-08
+
+### 2026-09
+
+1. 小澤 征爾
+2. Marcus Tullius Cicero
+3. Frederick Douglass
+4. John McCarthy
+5. Mother Teresa
+6. 林展霆
+7. [Yao Yao](https://people.wgtn.ac.nz/yao.yao/)
+8. 启功
+9. 包德甫
+10. 郭广昌
+11. Nicholas Schmidle
+12. Gabe Logan Newell
+13. 吴涛
+14. George Frideric Handel
+15. Marco Polo
+16. 李光耀
+17. James Madison
+18. George Jones
+19. Scott Elliott Fahlman
+20. Georges Maurice Huisman
+21. Stephen Edwin King
+22. William Z. Foster
+23. 伍学伟
+24. 李英
+25. William Cuthbert Faulkner
+26. Edward Youde
+27. Rachel Louise Carson
+28. 钱穆
+29. Ludwig Heinrich von Mises
+30. Monica Bellucci
